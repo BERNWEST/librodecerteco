@@ -2,10 +2,10 @@ PARTO UNUA
 
 1
 EN LA NOMO DE NIA SINJORO,
-LA SUPERECA, LA PLEJALTA.
+LA SUPERA, LA PLEJALTA.
 
 2
-Neniu atingos la bordojn de la oceano de l' vera kompreno, se li ne malligos sian koron de ĉio, kio estas en la ĉielo kaj sur la tero.  Sanktigu viajn animojn, ho vi, loĝantoj de la mondo, por ke vi atingu tiun staton, kiun Dio por vi destinis kaj eniru tiel la tabernaklon, kiu, laŭ la decido de Providenco, estas starigita sub la firmamento de Bayán.
+Neniu atingos la bordojn de la oceano de l' vera kompreno, se ne li malligos sian koron de ĉio, kio estas en la ĉielo kaj sur la tero.  Sanktigu viajn animojn, ho vi, loĝantoj de la mondo, por ke atingu vi tiun staton, kiun Dio por vi destinis kaj eniru tiel la tabernaklon, kiu, laŭ la decido de l' Providenco, estas starigita sub la firmamento de la Bajano.
 
 3
 La esenco de tiuj ĉi vortoj estas jena: tiuj, kiuj iras la vojon de kredo, tiuj, kiuj soifas la vinon de certeco, devas purigi sin de ĉio, kio estas tera: ili devas purigi siajn orelojn de senenhavaj aŭdaŕoj, siajn mensojn de vantaj imagoj, siajn korojn de mondaj sentoj, siajn okulojn de tio, kio pereos.  Ili devas konfidi sin al Dio, kaj, forte kroĉante sin al Li, iri Lian vojon.  Tiam ili iĝos indaj je la brillumaj grandiozaŕoj de la suno de l' dia kono kaj kompreno kaj ricevos favoron, kiu estas senfina kaj nevidebla, ĉar homo neniam povas esperi atingi la kornon de la Plejglora, neniam li povas trinki el la torento de l' dia sciado kaj saĝo, neniam povas eniri la restejon de l' senmorteco nek ricevi parton el la pokalo de dia proksimeco kaj favoro, antaŭ ol li ĉesos rigardi la vortojn kaj farojn de mortemuloj kiel kriterion de la vera kompreno kaj ekkono de Dio kaj Liaj Profetoj.
